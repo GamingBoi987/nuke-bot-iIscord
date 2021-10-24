@@ -1,0 +1,1 @@
+A bot made to nuke a discrod server made by GamerBoi join my discord server for support https://discord.gg/hEBxqN47HV and here is my friend discord server https://discord.gg/ZjeCRXex My friend also helped me for something
